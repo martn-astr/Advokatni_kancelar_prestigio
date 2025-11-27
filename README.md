@@ -1,4 +1,34 @@
-# Prestigio — Statická prezentační stránka
+# ⚖️ Advokátní kancelář **PRESTIGIO**
+**„Vaše právo, náš závazek.“**
 
-O co jde:
-Jednoduchá statická webová prezentace (HTML/CSS/JS) modelové advokátní kanceláře, určená pro ukázku služeb, týmu a referencí. Stránka je responzivní a obsahuje drobné UI animace a interakce (hamburger menu, reveal on scroll, jednoduché počítadlo).
+Vítejte v oficiálním README advokátní kanceláře **Prestigio**.  
+Jsme profesionální právní tým poskytující špičkové služby v rámci RP světa. 🏛️✨  
+Zajišťujeme ochranu vašich práv, bezpečí vašich zájmů a diskrétní jednání na nejvyšší úrovni.  
+
+
+## 🏛️ O nás
+Advokátní kancelář **Prestigio** je symbolem jistoty, důvěry a kvality.  
+Každý případ řešíme s maximální profesionalitou a individuálním přístupem.  
+Důvěrnost, preciznost a rychlost jsou našimi základními stavebními kameny. 💼
+
+
+## 📘 Specializace
+- ⚖️ Trestní právo  
+- 📄 Občanské spory  
+- 💼 Firemní & obchodní právo  
+- ✍️ Tvorba a kontrola smluv  
+- 👨‍⚖️ Zastupování před soudy a úřady  
+- 🔍 Právní poradenství
+
+
+
+## 🤝 Naše hodnoty
+- **Profesionalita**  
+- **Diskrétnost**  
+- **Rychlost**  
+- **Zodpovědnost**  
+- **Individuální přístup**
+
+
+## 🏅 PRESTIGIO  
+**Diskrétně • Profesionálně•Strategicky**
