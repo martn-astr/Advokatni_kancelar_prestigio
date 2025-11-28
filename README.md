@@ -2,7 +2,7 @@
  
 👩‍⚖️Potřebujete právní pomoc? Nechte to na nás! Jsme jako chobotnice v právním světě - pevné a neohrožené! 👩‍⚖️
 
-💼 Jsme jednou z předních právnických firem, působící v LA, NY, Baltimoru a dalších větších městech. Specializujeme se na občanské, trestní a majetkové právo. S námi se necítíte ztraceni v právním oceánu – jsme Vaším spolehlivým průvodcem k úspěchu!💼
+💼 Jsme jednou z předních právnických firem, působící v LS, NY, Baltimoru a dalších větších městech. Specializujeme se na občanské, trestní a majetkové právo. S námi se necítíte ztraceni v právním oceánu – jsme Vaším spolehlivým průvodcem k úspěchu!💼
 
 🌊 S námi máte na své straně tým zkušených právníků, kteří Vás provedou spletitými stezkami právního světa. Naše právní strategie jsou jako síť chobotnice, přesně se chytáme každé příležitosti, abychom hájili Vaše zájmy. Bezpečně a odhodlaně Vás přivedeme k úspěchu.🌊 
 
@@ -13,3 +13,4 @@
 🏆 V **Chobotnici s.r.o** rozumíme, že každý případ je jedinečný. Spolehněte se na naši zkušenost a vášeň pro právo, abychom dosáhli nejlepších výsledků pro Vás. Naše jméno je zárukou kvality a profesionality. Buďte si jisti, že náš tým je připraven hájit Vaše práva se vší vášní, kterou zasloužíte.🏆 
 
 📞 Navštivte naše stránky www.chobotnice-law.com, zavolejte nám nebo napište mail, uvedené v kontaktech, ještě dnes a objevte, jak se můžeme stát Vaším nejlepším právním partnerem! Jako chobotnice v právu jsme schopni pokrýt širokou škálu právních oblastí a poskytnout Vám komplexní právní servis. Spolehněte se na nás – **Chobotnice s.r.o** !📞
+
