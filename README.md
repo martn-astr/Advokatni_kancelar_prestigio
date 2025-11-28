@@ -12,4 +12,5 @@
 
 🏆 V **Chobotnici s.r.o** rozumíme, že každý případ je jedinečný. Spolehněte se na naši zkušenost a vášeň pro právo, abychom dosáhli nejlepších výsledků pro Vás. Naše jméno je zárukou kvality a profesionality. Buďte si jisti, že náš tým je připraven hájit Vaše práva se vší vášní, kterou zasloužíte.🏆 
 
-📞 Navštivte naše stránky www.chobotnice-law.com, zavolejte nám nebo napište mail, uvedené v kontaktech, ještě dnes a objevte, jak se můžeme stát Vaším nejlepším právním partnerem! Jako chobotnice v právu jsme schopni pokrýt širokou škálu právních oblastí a poskytnout Vám komplexní právní servis. Spolehněte se na nás – **Chobotnice s.r.o** !📞
+📞 Navštivte naše stránky [www.chobotnice-law.com,](https://martn-astr.github.io/Advokatni_kancelar_chobotnice/), zavolejte nám nebo napište mail, uvedené v kontaktech, ještě dnes a objevte, jak se můžeme stát Vaším nejlepším právním partnerem! Jako chobotnice v právu jsme schopni pokrýt širokou škálu právních oblastí a poskytnout Vám komplexní právní servis. Spolehněte se na nás – **Chobotnice s.r.o** !📞
+
